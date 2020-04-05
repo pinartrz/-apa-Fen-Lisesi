@@ -1,1 +1,2 @@
-# -apa-Fen-Lisesi
+# -Capa-Fen-Lisesi
+**PINAR TERZİ 9E 31
